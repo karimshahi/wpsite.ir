@@ -14,8 +14,8 @@ Our some Work:
 
 [www.AmirJalili.ir](http://amirjalili.ir)
 
-[www.AzTolidi.ir](http://www.aztolidi.ir)
+[www.AzTolidi.ir](http://www.aztolidi.com)
 
-[www.Rasoulnegari.ir](http://www.rasoulnegari.ir)
+[www.RasoulNegari.ir](http://www.rasoulnegari.ir)
 
 
